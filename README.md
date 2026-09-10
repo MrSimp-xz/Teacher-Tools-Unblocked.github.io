@@ -7,5 +7,5 @@
 #### Visit now at 
 
 ```
-https://teacher-tools-unblocked.github.io
+https://mrsimp-xz.github.io/Teacher-Tools-Unblocked.github.io/
 ```
